@@ -1,3 +1,3 @@
 ### Hi!
 
-I'm new here. I will be learning the tools and technologies to create web apps.
+I'm a junior web developer with focus on building my programming skills to contribute and to create something that is useful and tailored to people's needs and preferences.
