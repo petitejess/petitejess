@@ -1,3 +1,4 @@
-### Hi!
+# Hiya!
 
-I'm a junior web developer with focus on building my programming skills to contribute and to create things that are useful and tailored to people's needs and preferences.
+I'm Jess! Just popping in here to share the love of creating many many many things in this 🌈 b-e-a-u-tiful world! 🤭 
+Oh, and the love of bubble teas! 🧋 
